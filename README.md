@@ -153,7 +153,7 @@ All Rights Reserved Under the **Children’s Federation of Fun (CFF)**
 ## SECTION 12: THE GRAND ENDING
 
 **S.12, R.1:** The Rules of Children shall be honored in spirit, even when broken in practice.  
-**S.12, R.2:** Any future additions to this document must be approved by at least two children and one imaginary friend.  
+**S.12, R.2:** Any future additions to this document must be approved by the owner. 
 **S.12, R.3:** The ROC is forever in effect until the holder officially “grows up,” at which point enforcement becomes optional.  
 **S.12, FINAL:** Long live the ROC.
 
