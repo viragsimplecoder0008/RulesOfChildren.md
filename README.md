@@ -1,5 +1,5 @@
 # RULES OF CHILDREN (A.K.A. ROC)
-**Version 1.0 — Drafted by Anonymous**  
+**Version 1.0 -- Made for children, made by a child** 
 All Rights Reserved Under the **Children’s Federation of Fun (CFF)**
 
 ---
